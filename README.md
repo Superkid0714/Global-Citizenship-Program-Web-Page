@@ -33,4 +33,4 @@
 
 [★블랙베어 in 싱가포르★ 낭만버스킹 | 세계시민성교육프로그램 | 호남대학교](https://www.youtube.com/watch?v=a9f3L4n0vdE)
 
-[호남대학교(Honam Univ) | 호남대 공식계정 on Instagram: "★블랙베어 in 싱가포르★ 낭만버스킹   호남대학교 세계시민성교육프로그램(싱가포르)에 참가한 밴드동아리 블랙베어팀의 버스킹 공연입니다!](https://www.instagram.com/p/C0grOEuyoV7/)
+[호남대학교(Honam Univ) | 호남대 공식계정 on Instagram: "★블랙베어 in 싱가포르★ 낭만버스킹](https://www.instagram.com/p/C0grOEuyoV7/)
