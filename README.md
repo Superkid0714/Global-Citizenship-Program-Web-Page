@@ -7,3 +7,27 @@
 
 ![image](https://github.com/user-attachments/assets/82254279-6f5a-4c18-992e-34063d2c811e)
 
+
+[대학연계 세계시민성 교육 프로그램 시작](https://blog.naver.com/kid0714wer/223703819939)
+
+[대학연계 세계시민성 교육 프로그램 (1)](https://blog.naver.com/kid0714wer/223703864575)
+
+[대학연계 세계시민성 교육 프로그램 (2)](https://blog.naver.com/kid0714wer/223704666209)
+
+[대학연계 세계시민성 교육 프로그램 (3)](https://blog.naver.com/kid0714wer/223704699207)
+
+[대학연계 세계시민성 교육 프로그램 마무리](https://blog.naver.com/kid0714wer/223704705776)
+
+## 관련 인터넷 뉴스 & 유튜브 & 인스타그램
+
+[호남대 통합뉴스센터 '날아라 호덕이팀' '2023 세계시민성교육 프로그램' 참여](https://www.veritas-a.com/news/articleView.html?idxno=465561)
+
+[2023 대학연계 세계시민성교육프로그램 / 싱가포르 #shorts](https://www.youtube.com/shorts/j0tjmEBob1k)
+
+[2023 대학연계 세계시민성교육프로그램 / 싱가포르편 / 날아라호덕이팀 #shorts](https://www.youtube.com/shorts/7LEGvOQgVd8)
+
+[2023 대학연계 세계시민성 교육 프로그램](https://www.youtube.com/watch?v=Bda75w7rWUU)
+
+[★블랙베어 in 싱가포르★ 낭만버스킹 | 세계시민성교육프로그램 | 호남대학교](https://www.youtube.com/watch?v=a9f3L4n0vdE)
+
+[호남대학교(Honam Univ) | 호남대 공식계정 on Instagram: "★블랙베어 in 싱가포르★ 낭만버스킹   호남대학교 세계시민성교육프로그램(싱가포르)에 참가한 밴드동아리 블랙베어팀의 버스킹 공연입니다!  영상 재밌게 보시고  구독💕 좋아요👍 부탁드려요🙏🏻  ▶풀영상 바로가기(프로필 타고 들어오세요) https://youtu.be/a9f3L4n0vdE  #블랙베어 #버스킹 #싱가포르 #세계시민성교육프로그램 #호남대 #호남대학교 #대학 #대학생 #밴드동아리"](https://www.instagram.com/p/C0grOEuyoV7/)
